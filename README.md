@@ -1,1 +1,1 @@
-# AplikIBazyDanych xgfdfgdfgdfg
+# AplikIBazyDanych xgfdfgdfgdfg hsahshshs
